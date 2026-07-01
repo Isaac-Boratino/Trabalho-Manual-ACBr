@@ -10,3 +10,10 @@ Você acabou deixando o Trabalhando para última hora, e agora não sabe oque fa
 ## **Capítulo 3:** Dicas do Dia a Dia *(Feito por Matheus Martins Pereira)*
 Para se organizar dentro da etec e preciso prestar atenção nas aulas, ter um caderno arrumado, e sempre anotar e checar os slides mandados no grupo da sala.
 Não deixar os trabalhos para ultima hora, fazer lições de casa e ajudar as pessoas que tiverem dificuldades.
+
+
+## **Capítulo 4:** Dicas de Trabalho em Equipe *(Feito por Denis Santiago Agostinho Filho)* 
+Para que o seu grupo tenha um bom desempenho nas atividades da Etec, é importante ter paciência, cooperação e saber ouvir a opinião dos colegas. Além disso, evitar brigas por controle ajuda a manter um ambiente de respeito e trabalho em equipe.
+
+
+
